@@ -10,7 +10,7 @@ meu nome é Ruan
 
 ruan.abreu.oliveira@escola.pr.gov.br
 
-@ruanv12_
+@ruanv.12_
 
 ![]()
 https://media.tenor.com/grK7jtRobfMAAAAC/grand-theft-auto-carl-johnson.gif
